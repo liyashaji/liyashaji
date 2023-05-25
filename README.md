@@ -9,7 +9,9 @@
 
   What am I pretty good at?
   I can do pretty well in Graphics Designing, Web Designing and Front end development and some other non technical stuffs.
+  
   💬 Talk to me about anything beautiful in this world!
+  
   📫 How to reach me: 
   You can always reach me through my social media handles and mail
 - Gmail: liyaelizabethshaji@gmail.com
